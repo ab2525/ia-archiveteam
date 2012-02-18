@@ -1,0 +1,1 @@
+../.git/annex/objects/V4/5F/URL-s470--http&c%%archive.org%download%googlefriendsnewsletter%README-googlefriendsnewsletter.txt_meta.txt/URL-s470--http&c%%archive.org%download%googlefriendsnewsletter%README-googlefriendsnewsletter.txt_meta.txt

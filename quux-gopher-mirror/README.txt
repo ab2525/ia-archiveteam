@@ -1,0 +1,1 @@
+../.git/annex/objects/p2/vg/URL-s2912--http&c%%archive.org%download%quux-gopher-mirror%README.txt/URL-s2912--http&c%%archive.org%download%quux-gopher-mirror%README.txt

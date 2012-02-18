@@ -1,0 +1,1 @@
+../.git/annex/objects/q5/6P/URL-s478--http&c%%archive.org%download%archiveteam-wordcountjournal%README-wordcountjournal.txt_meta.txt/URL-s478--http&c%%archive.org%download%archiveteam-wordcountjournal%README-wordcountjournal.txt_meta.txt

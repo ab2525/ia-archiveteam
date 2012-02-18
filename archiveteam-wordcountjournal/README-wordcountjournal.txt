@@ -1,0 +1,1 @@
+../.git/annex/objects/f7/WJ/URL-s1070--http&c%%archive.org%download%archiveteam-wordcountjournal%README-wordcountjournal.txt/URL-s1070--http&c%%archive.org%download%archiveteam-wordcountjournal%README-wordcountjournal.txt
